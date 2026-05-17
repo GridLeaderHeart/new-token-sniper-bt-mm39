@@ -1,4 +1,4 @@
-# 
+# exclusive bot sniper MEV executor é o melhor bot sniper MEV executor com oportunidades de arbitragem e análise de impacto de preço. Seguro, confiável e otimizado para estratégias
 
 
 
